@@ -1,1 +1,1 @@
-PPTs criados para cada aula da disciplina
+PPTs criados para seminário da disciplina
